@@ -14,3 +14,5 @@ Tomada Inteligente https://amzn.to/2SPhrbW
 SSD M.2 NVMe https://amzn.to/3iY2Gya
 
 Notebook Lenovo https://amzn.to/35IezAE
+
+AirFryer https://amzn.to/3qspFmM
