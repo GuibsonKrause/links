@@ -16,3 +16,5 @@ SSD M.2 NVMe https://amzn.to/3iY2Gya
 Notebook Lenovo https://amzn.to/35IezAE
 
 AirFryer https://amzn.to/3qspFmM
+
+Adaptador fone https://amzn.to/3wbt2Qf
