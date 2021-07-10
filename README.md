@@ -18,3 +18,5 @@ Notebook Lenovo https://amzn.to/35IezAE
 AirFryer https://amzn.to/3qspFmM
 
 Adaptador fone https://amzn.to/3wbt2Qf
+
+cabo hdmi: https://amzn.to/3e3lwRt
