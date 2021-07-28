@@ -20,3 +20,9 @@ AirFryer https://amzn.to/3qspFmM
 Adaptador fone https://amzn.to/3wbt2Qf
 
 cabo hdmi: https://amzn.to/3e3lwRt
+
+HeadSet JBL: https://amzn.to/3x86tN2
+
+HeadSet Warrior: https://amzn.to/3yaPafw
+
+HeadSet Warrior basic: https://amzn.to/2UZZTLt
